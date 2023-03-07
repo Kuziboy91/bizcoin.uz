@@ -1,1 +1,1 @@
-# bizcoin.uz
+https://biz-coin.com/?ref=Kuziboy91
